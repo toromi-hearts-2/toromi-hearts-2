@@ -1,4 +1,4 @@
-Hi. Yes, I'm a person with DID. Yes, I know about my disorder, and I know a lot about it actually! I don't want to make details about my alters public, so this is just to signify that someone other than the host (Tech / DDR-Angel) is in front.
+Hi. Yes, I'm a person with DID. Yes, I know about my disorder, and I know a lot about it actually! I don't want to make details about my alters public, so this is just to signify that someone other than the host (Tech / DDR-Angel) is in front (or maybe he is in front. You'd know if you know what other names he uses!)
 
 Since this is the case, **please don't interact with me unless I do first or if you're one of the amazing people here!**
 
