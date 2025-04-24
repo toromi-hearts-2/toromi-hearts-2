@@ -37,3 +37,4 @@ Please educate yourselves on DID. It's not the silly brain friend disorder and I
 
 [Exploring Evidence of a Dissociative Subtype in PTSD: Baseline Symptom Structure, Etiology and Treatment Efficacy for those who Dissociate](https://pmc.ncbi.nlm.nih.gov/articles/PMC5918299/)
 
+[DID research masterlist](https://rentry.co/DID-Research/)
