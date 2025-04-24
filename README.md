@@ -4,7 +4,7 @@ Since this is the case, **please don't interact with me unless I do first or if 
 
 ![image](https://github.com/user-attachments/assets/aa1a94d7-26e3-40b0-8662-926fe618d7c2)
 
-![](
+
 Dear Ponytown,
 
 Please educate yourselves on DID. It's not the silly brain friend disorder and I'm so fucking tired of people treating it as such. **Also, stop using those shitty Carrds for your resources. A lot of them get information wrong, and rarely ever link to genuine medical resources.**
@@ -31,8 +31,9 @@ Please educate yourselves on DID. It's not the silly brain friend disorder and I
 
 [The course of (comorbid) trauma-related, dissociative and personality disorders](https://pmc.ncbi.nlm.nih.gov/articles/PMC7241467/)
 
-[Alters in Dissociative Identity Disorder](https://www.researchgate.net/publication/254420805_Alters_in_dissociative_identity_disorder)
+[Alter Identities in Dissociative Identity Disorder](https://traumadissociation.com/alters)
 
 [Dissociative Identity Disorder and Its Relationship with Other Diagnoses](https://www.researchgate.net/publication/385284895_Dissociative_Identity_Disorder_and_Its_Relationship_with_Other_Diagnoses)
 
+[Exploring Evidence of a Dissociative Subtype in PTSD: Baseline Symptom Structure, Etiology and Treatment Efficacy for those who Dissociate](https://pmc.ncbi.nlm.nih.gov/articles/PMC5918299/)
 
