@@ -7,7 +7,7 @@ Since this is the case, **please don't interact with me unless I do first or if 
 
 Dear Ponytown,
 
-Please educate yourselves on DID. It's not the silly brain friend disorder and I'm so fucking tired of people treating it as such. **Also, stop using those shitty Carrds for your resources. A lot of them get information wrong, and rarely ever link to genuine medical resources.**
+Please educate yourselves on DID. It's not the silly brain friend disorder and I'm so fucking tired of people treating it as such. It's a tiring disorder, and people who use it to roleplay as their favorite characters are stigmatizing the disorder further. **Some psychologists don't even think it's a real disorder.** **Also, stop using those shitty Carrds for your resources. A lot of them get information wrong, and rarely ever link to genuine medical resources.**
 
 [Developmental trauma: Conceptual framework, associated risks and comorbidities, and evaluation and treatment](https://pmc.ncbi.nlm.nih.gov/articles/PMC9352895/#:~:text=Investigations%20of%20individuals%20with%20DTD,to%20family%20and%20community%20violence)
 
