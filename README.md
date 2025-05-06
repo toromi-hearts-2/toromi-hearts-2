@@ -1,8 +1,6 @@
 Hi. Yes, I'm a person with DID. Yes, I know about my disorder, and I know a lot about it actually! I don't want to make details about my alters public, so this is just to signify that someone other than the host (Tech / @DDR-Angel) is in front (or maybe he is in front.)
 
-Since this is the case, **please don't interact with me unless I do first or if you're one of the amazing people here!**
-
-![image](https://github.com/user-attachments/assets/aa1a94d7-26e3-40b0-8662-926fe618d7c2)
+Since this is the case, **please don't interact unless you're in my party.** Thx!
 
 
 Dear Ponytown,
