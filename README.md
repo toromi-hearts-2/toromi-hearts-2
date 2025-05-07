@@ -3,11 +3,13 @@ He only wants to interact with a select group of people, and is usually against 
 Don't be upset if you don't get a response!
 ](https://github.com/user-attachments/assets/de26a638-697d-4e71-97eb-a77736797029)
 
+DID is not:
+- The silly people in your head disorder
+- Acting
+- Roleplay
 
-DID isn't the silly people in head disorder. It's a dissociative disorder caused by trauma before the ages 6-9 (or 5-10 in some instances.) Stop treating it as if it's a way for your favorite characters to come to life. Introjects aren't their source, and treating them like source is anti-recovery.
+DID is a complex dissociative disorder caused by trauma before the ages 5-10. It isn't a means to roleplay as your favorite characters in media nor is it a way for your favorite characters to come to life. It's a disorder that has ruined my life, and is genuinely a pain to live with. Introjects aren't their source, and likening them to their source is highly anti-recovery.
 
-Stop using Carrds and social media for your research. Tiktok isn't a verified medical source, and Carrd isn't a verified medical source. 
+Stop using Carrds and social media for your information. They aren't verified medical sources. They aren't medical journals.
 
-
-Read my Rentry that actually **has** medical resources : https://rentry.co/DID-Research
-
+Rentry with medical sources: https://rentry.co/DID-Research
