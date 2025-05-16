@@ -13,5 +13,5 @@ DID is a complex dissociative disorder caused by trauma before the ages 5-10. It
 Stop using Carrds and social media for your information. They aren't verified medical sources. They aren't medical journals.
 
 Rentry with medical sources: https://rentry.co/DID-Research
-
-My alters only play this game to have something running in the background. **They have no intent on interacting with you unless you're in my PT party.**
+***
+My alters only play this game to have something running in the background. They don't want to interact with you unless you're a friend of mine. **Leave me alone.**
