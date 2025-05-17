@@ -22,6 +22,6 @@ You do not have DID or a system. You're either faking it to make yourself seem s
 ***
 
 ## **Good Reads on DID**
-[Self-Diagnosed Cases of Dissociative Identity Disorder on Social Media: Conceptualization, Assessment, and Treatment](https://pmc.ncbi.nlm.nih.gov/articles/PMC11708999/)
-[Revisiting False-Positive and Imitated Dissociative Identity Disorder](https://pmc.ncbi.nlm.nih.gov/articles/PMC8134744/)
-[Dissociative Identity Disorder in an Adolescent With Nine Alternate Personality Traits: A Case Study](https://pmc.ncbi.nlm.nih.gov/articles/PMC9242847/)
+- [Self-Diagnosed Cases of Dissociative Identity Disorder on Social Media: Conceptualization, Assessment, and Treatment](https://pmc.ncbi.nlm.nih.gov/articles/PMC11708999/)
+- [Revisiting False-Positive and Imitated Dissociative Identity Disorder](https://pmc.ncbi.nlm.nih.gov/articles/PMC8134744/)
+- [Dissociative Identity Disorder in an Adolescent With Nine Alternate Personality Traits: A Case Study](https://pmc.ncbi.nlm.nih.gov/articles/PMC9242847/)
