@@ -10,18 +10,36 @@ Dissociative Identity Disorder is a complex dissociative disorder that **is caus
 
 DID is not a way to roleplay as your favorite characters nor is it something to flaunt. **Being traumatized shouldn't be flexed like a cool trophy you earned.** The amount of people that flex the fact they have this disorder is concerning especially coming from someone who *does* have this disorder. You wouldn't be flexing your trauma just out in the open, wound you?
 
-**You shouldn't want to have DID. You shouldn't want to be traumatized.**
+**You shouldn't want to have DID. You shouldn't want to be traumatized.** 
 
-If you suspect you have DID, do your research and take your findings and symptoms to a licensed medical professional. Don't rely on word of mouth to diagnose you. That is armchair psychology.
+If you suspect you have DID, take your findings up with a licensed professional. Don't rely on other people's word of mouth to self-diagnose. If you do self-diagnose, only do it with the intention of improving your life and working on managing your symptoms. Don't do it as a fun and quirky thing.
 ***
-# On Introjects:
-Stop treating your introjects like their source. They aren't their source, and likening them to their source can only mislead people into thinking people with DID who have introjects are those characters IRL. Also, alters don't just develop for no reason.
+# **Diagnostic criterias.**
+This is because some people seem to forget.
+
+![image](https://github.com/user-attachments/assets/9303c7c4-3383-4376-a7ab-061f72341ebe)
+
+![image](https://github.com/user-attachments/assets/20064360-0943-4f4f-bc1a-6a34834cbbf4)
+
+![image](https://github.com/user-attachments/assets/3667557d-d1b7-48db-8ba8-9e1af8881306)
+
+![image](https://github.com/user-attachments/assets/1a265221-c2fb-495c-9550-7840eb4027ba)
+
+![image](https://github.com/user-attachments/assets/e03a0cb5-86cc-4ae7-b7d3-eda917dfc1c0)
 ***
-# On endogenic systems:
+# **"DID is a personality disorder**
+Take a look at the definitions of a personality disorder and a dissociative disorder. 
 
-**Endogenic systems are not valid systems.**
+> "A personality disorder is an enduring pattern of inner
+experience and behavior that deviates markedly from the norms and expectations of the
+individual’s culture, is pervasive and inflexible, has an onset in adolescence or early adulthood,
+is stable over time, and leads to distress or impairment."
 
-You're either faking it to make yourself seem special, or you've been misled into thinking your system didn't form as a result of trauma. The only thing that ever proves the existence of endogenic systems is, "trust me, bro." You are making DID into a trend, making it much more difficult for people, particularly children, to be diagnosed.
+> "Dissociative disorders are characterized by a disruption of and/or discontinuity in the
+normal integration of consciousness, memory, identity, emotion, perception, body representation,
+motor control, and behavior. Dissociative symptoms can potentially disrupt every area of
+psychological functioning. This chapter includes dissociative identity disorder, dissociative
+amnesia, depersonalization/derealization disorder, other specified dissociative disorder, and
+unspecified dissociative disorder."
 
-"You shouldn't downplay someone's lived experience!" Their experience has a direct impact on mine when they try to infiltrate the places of individuals who have been seriously traumatized and claim to have something these people deal with on a daily basis. DID is not a fun disorder, and I've ruined so many relationships simply by admitting to having it. If this doesn't convince you that endogenic "systems" have a direct impact on people with DID, I'm not sure what would.
-
+DID is not a personality disorder.
