@@ -14,18 +14,10 @@ DID is not a way to roleplay as your favorite characters nor is it something to 
 
 If you suspect you have DID, take your findings up with a licensed professional. Don't rely on other people's word of mouth to self-diagnose. If you do self-diagnose, only do it with the intention of improving your life and working on managing your symptoms. Don't do it as a fun and quirky thing.
 ***
-# **Diagnostic criterias.**
-This is because some people seem to forget.
+# **Diagnostic criteria**
+Some people seem to forget about DID's diagnostic criteria.
 
 ![image](https://github.com/user-attachments/assets/9303c7c4-3383-4376-a7ab-061f72341ebe)
-
-![image](https://github.com/user-attachments/assets/20064360-0943-4f4f-bc1a-6a34834cbbf4)
-
-![image](https://github.com/user-attachments/assets/3667557d-d1b7-48db-8ba8-9e1af8881306)
-
-![image](https://github.com/user-attachments/assets/1a265221-c2fb-495c-9550-7840eb4027ba)
-
-![image](https://github.com/user-attachments/assets/e03a0cb5-86cc-4ae7-b7d3-eda917dfc1c0)
 ***
 # **"DID is a personality disorder**
 Take a look at the definitions of a personality disorder and a dissociative disorder. 
