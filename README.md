@@ -8,7 +8,7 @@ Dissociative Identity Disorder is a complex dissociative disorder that **is caus
 * Your symptoms are because of substance use or another medical condition
 ![image](https://github.com/user-attachments/assets/79bb820e-6c9e-4646-97b0-12a4b47d87d0)
 
-DID is not a way to roleplay as your favorite characters nor is it something to flaunt. **Being traumatized shouldn't be flexed like a cool trophy you earned.** The amount of people that flex the fact they have this disorder is concerning especially coming from someone who *does* have this disorder. You wouldn't be flexing your trauma just out in the open, wound you?
+DID is not a way to roleplay as your favorite characters nor is it something to flaunt. **Being traumatized shouldn't be flexed like a cool trophy you earned.** The amount of people that flex the fact they have this disorder is concerning especially coming from someone who *does* have this disorder. You wouldn't be flexing your trauma just out in the open, would you?
 
 **You shouldn't want to have DID. You shouldn't want to be traumatized.** 
 
