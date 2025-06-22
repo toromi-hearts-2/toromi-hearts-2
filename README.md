@@ -42,4 +42,6 @@ psychological functioning. This chapter includes dissociative identity disorder,
 amnesia, depersonalization/derealization disorder, other specified dissociative disorder, and
 unspecified dissociative disorder."
 
-DID is not a personality disorder.
+DID is not a personality disorder. MPD, the old diagnostic name for DID, was never listed as a personality disorder in the DSM-III
+![image](https://github.com/user-attachments/assets/f40e269f-a9e1-4c6e-8057-306492035d83)
+
