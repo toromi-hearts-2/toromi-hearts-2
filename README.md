@@ -1,4 +1,4 @@
-Dissociative Identity Disorder is a complex dissociative disorder that **is caused by trauma before the ages of 5-6**. It can also be caused by disorganized attachment to caregivers. 
+Dissociative Identity Disorder is a complex dissociative disorder that **is caused by trauma and disorganized attachment to caregivers before the ages of 5-6**. 
 
 ![image](https://github.com/user-attachments/assets/74e956fa-1de1-4306-ac86-e8ee21ba9af4)
 
