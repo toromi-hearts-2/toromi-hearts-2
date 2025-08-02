@@ -16,7 +16,7 @@ please actually learn about did before educating others. i hate how much misinfo
 ***
 my dni:
 * endogenic "systems
-  * YOU AREN'T A SYSTEM. YOU EITHER FORGOT YOUR TRAUMA OR, YOU HAVE ANOTHER ISSUE GOING ON. STOP APPROPRIATING A TRAUMA-BASED DISSOCIATIVE DISORDER.
+  * YOU EITHER FORGOT YOUR TRAUMA OR YOU HAVE ANOTHER ISSUE GOING ON.
 * radqueer
   * YOU PEOPLE ARE DISGUSTING. SEEK HELP.
 * anyone who supports @collectiveofeden on tiktok or @aspenfrosten
