@@ -8,7 +8,7 @@ did isn't something to flex and it shouldn't be romanticized as much as it is.
 
 alters aren't separate people and they are instead parts of your identity that didn't integrate properly during important developmental periods. treating them as if they're separate people in one body is incredibly misleading and unhealthy. alters make up **one** person.
 
-acting like you're better than "singlets" is incredibly misleading as well. systems are basically singlets with a disorder and that's abbout it.
+acting like you're better than "singlets" is incredibly misleading as well. systems are basically singlets with a disorder and that's about it.
 
 system accountability applies to the entire system and not just a few alters. you're accountable for *your* actions even if another part did it.
 
