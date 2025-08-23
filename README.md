@@ -6,7 +6,7 @@ it's very obvious a lot of people on this game just do not understand did. pleas
 
 [the haunted self](https://www.docdroid.net/arPAtHT/van-der-hart-2006-the-haunted-self-pdf#page=15)
 
-[dissociative identity disorder - a controversial diagnosis]
+[dissociative identity disorder - a controversial diagnosis](https://pmc.ncbi.nlm.nih.gov/articles/PMC2719457/)
 
 [dissociative identity disorder](https://www.ncbi.nlm.nih.gov/books/NBK568768/)
 
